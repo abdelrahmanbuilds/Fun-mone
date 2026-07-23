@@ -1,0 +1,2 @@
+# Fun-mone
+Fun money 💰
